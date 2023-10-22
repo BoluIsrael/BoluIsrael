@@ -7,6 +7,9 @@ I am highly detail-oriented and possess strong problem-solving abilities, which 
 
 Furthermore, I am a quick learner who thrives in collaborative environments. I am eager to work alongside experienced professionals who can mentor me while also contributing fresh perspectives and innovative ideas.
 
+👨‍💻 All of my projects are available at https://github.com/BoluIsrael?tab=repositories
+
+
 
 
 
