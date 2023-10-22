@@ -10,6 +10,7 @@ Furthermore, I am a quick learner who thrives in collaborative environments. I a
 👨‍💻 All of my projects are available at https://github.com/BoluIsrael?tab=repositories
 
 
+____________________________________________________________________________________________________________________________________________________________________________
 
 
 
